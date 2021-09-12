@@ -1,16 +1,14 @@
-### Hi there 👋
+### Hi , How’s it going? 👋
+my nickname is Fiberx01 👋.
+I'm passionate 🔥about delivering something that works and you would be proud to show off. I mainly build websites from scratch using any web technology 🚇. I'm creative✨ and usually think from the point of view of the product owner👷.
 
-<!--
-**fiberx10/Fiberx10** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+💯 ## Professionalism
+💥 ## Creativity
+🧑‍🤝‍🧑 ## TeamWork
+👌 ## On the time
+👮 ## Commitment
+📄 ## highly organized 
 
-Here are some ideas to get you started:
+I can't wait to see your reaction to what I'm going to show you🗽.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
